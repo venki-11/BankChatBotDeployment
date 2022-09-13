@@ -8,3 +8,6 @@ We can usually motice that customers are more comfortable with the chatbots as t
 
 
 
+![Screenshot (34)](https://user-images.githubusercontent.com/94778216/189975498-b22851d7-8319-4ba5-be9e-9f4f17ae5ec1.png)
+
+![Screenshot (35)](https://user-images.githubusercontent.com/94778216/189975593-5922ab39-2ac9-436e-bd8f-0b9a875c81f3.png)
